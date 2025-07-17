@@ -1,0 +1,1 @@
+See online README.md version for detailed explanation at evo33.io
